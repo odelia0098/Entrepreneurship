@@ -1,1 +1,1 @@
-### mission, vission, values
+### mission, vision, values
